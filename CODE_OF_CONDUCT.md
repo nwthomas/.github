@@ -1,3 +1,3 @@
 # Code of Conduct
 
-Please be kind.
+Be most excellent to each other.
